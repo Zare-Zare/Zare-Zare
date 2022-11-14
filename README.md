@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Coffee
+- 👀 I’m interested in music and art.
+- 🌱 I’m currently learning 3D animation
+- 📫 How to reach me - rileyvin05@gmail.com
